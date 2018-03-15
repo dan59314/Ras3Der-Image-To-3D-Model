@@ -34,11 +34,11 @@ Step3 : Save 3d Model ( STL, 3ds, obj...).
 
 Download :
 
-http://www.rasvector.url.tw/Ras3Der/ReleaseRas3De...
+http://www.rasvector.url.tw/Ras3Der/ReleaseRas3Der.rar
 
 More free tools：
 
-http://www.rasvector.url.tw/hot_91270.html ..
+http://www.rasvector.url.tw/hot_91270.html 
 
 Instroduction:
 
